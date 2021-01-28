@@ -1,1 +1,1 @@
-# Kuri-Manju-problem
+FOLDING A PAPER
